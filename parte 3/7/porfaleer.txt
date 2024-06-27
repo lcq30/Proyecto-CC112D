@@ -1,2 +1,0 @@
-inicialmente lo ejecute con una extension de google, al momento de guardarlo se guardo en un archivo de tipo SIDE
-
