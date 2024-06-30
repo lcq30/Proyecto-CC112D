@@ -20,4 +20,4 @@ Mamani Benites Jimmy (20211489D)
 Rios Cusi David (20230216J)
 Cruz Quispe Luis (20221664C)
 
-**NOTA FINAL: **  Esperando Video...
+**NOTA FINAL: 18**
